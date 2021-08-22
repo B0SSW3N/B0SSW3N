@@ -1,5 +1,5 @@
              
-   ![alt text](https://cdn.discordapp.com/attachments/834687071729090571/879075882210299904/RWIw35.gif) 
+   ![alt text](https://media.discordapp.net/attachments/834687071729090571/879078600366776360/Screenshot_20ssssw21-08-22_210408.png) 
  
              ─────────────────────────────────────────────────────────────────────────────────────────────────────
                   
